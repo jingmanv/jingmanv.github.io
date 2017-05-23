@@ -1,1 +1,0 @@
-# jingmanv.github.io
